@@ -1,1 +1,0 @@
-# hpmduc.github.io
